@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Lucas-magalhaes1&color=006bed)
+
 ### Olá! eu sou o Lucas Magalhães 👋
 
 <h3> :man: &nbsp;Sobre mim </h3>
